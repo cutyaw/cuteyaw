@@ -1,3 +1,6 @@
-this is real cuteyaw??\n
-https://cuteyaw.bar\n
-https://e-z.bio/cuteyaw\n
+this is real cuteyaw??
+
+https://cuteyaw.bar
+
+https://e-z.bio/cuteyaw
+
